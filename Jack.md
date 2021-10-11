@@ -1,0 +1,1 @@
+Glaciers and ice sheets hold about 69 percent of the world's freshwater.
